@@ -1,4 +1,4 @@
-# Welcome to SBR Digital! �
+# Welcome to SBR Digital!
 
 Hello there! 👋
 
